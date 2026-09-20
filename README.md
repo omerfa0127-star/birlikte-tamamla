@@ -1,2 +1,0 @@
-# birlikte-tamamla
-birlikte-tamamla
